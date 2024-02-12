@@ -1,1 +1,3 @@
-Are you an expert in death? Let's find out!<img width="1440" alt="Screenshot 2024-02-12 at 20 07 57" src="https://github.com/ChristinaSubedi/WhoDiedFirst/assets/96991580/9beb43cc-583d-4e79-ae42-85796c2ae32a">
+Are you an expert in death? Let's find out!
+
+[Screen Recording 2024-02-12 at 20.08.05.zip](https://github.com/ChristinaSubedi/WhoDiedFirst/files/14249380/Screen.Recording.2024-02-12.at.20.08.05.zip)
